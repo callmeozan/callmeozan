@@ -8,7 +8,7 @@ Here's some information about me:
 - 👀 I’m interested in Computer Science
 - 🌱 I’m currently learning IT
 - 💞️ I’m looking to collaborate on Collaborate on building a simple website
-- 📫 How to reach me 0813-1449-9253
+- 📫 How to reach me 0856-0087-1003
 I'm open to working with others and learning from their experiences.
 
 Please feel free to contact me if you're interested in collaborating.
